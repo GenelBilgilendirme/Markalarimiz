@@ -1,20 +1,14 @@
 📢 Teknik sebeplerden dolayı geçici süreyle aşağıdaki yeni adreslerden hizmet vermeye başladık. 
 
 🔗 Yeni Giriş Adresleri
-Meritking: https://heylink.me/denemeal
+# <a href="https://heylink.me/denemeal">Meritking</a>
+# <a href="https://heylink.me/denemeal">TIKLA VE GİRİŞ YAP</a>
 
-Kingroyal: https://heylink.me/denemeal
+# <a href="https://heylink.me/denemeal">Kingroyal</a>
+# <a href="https://heylink.me/denemeal">TIKLA VE GİRİŞ YAP</a>
 
-Madridbet: https://heylink.me/denemeal
-
-🖼️ Tanıtıcı Görseller
-Meritking
-
-Kingroyal
-
-Madridbet
-
-
+# <a href="https://heylink.me/denemeal">Madridbet</a>
+# <a href="https://heylink.me/denemeal">TIKLA VE GİRİŞ YAP</a>
 
 🎁 Üye ol, deneme bonusları ve hoş geldin bonuslarını kaçırma!
 ⚠️ Dikkat Edilmesi Gerekenler
